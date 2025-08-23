@@ -4,4 +4,5 @@
 ![image](https://github.com/user-attachments/assets/55ab4ce3-c1aa-42ab-98c8-8a324bcd0e28)
 <p align="center"> Hello!!! You will mostly see me underneath the spawn, the bsd and prjsk area, and sitting with friends ^^
 &nbsp;
-<p align="center"> 
+<p align="center"> My skins are mostly from Project Moon (mainly Limbus Company) but I usually dress up as my fav characters in the areas you'll see me stay in.
+&nbsp;
