@@ -11,4 +11,5 @@
 <p align="center"> Lastly, I mostly don't talk and usually I just want to sit near or with the fandom I'm in so I apologize in advance if I don't talk 
 &nbsp;
 <p align="center"> 《Fandoms I'm in: Bungou Stray Dogs, Project Moon (Limbus Company), Project Sekai, Uma Musume》
+&nbsp;
 <img width="200" height="15" alt="image" src="https://github.com/user-attachments/assets/bb0ace71-8f6e-4fc7-a70e-8406dc0a3a58" />
